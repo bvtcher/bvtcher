@@ -1,10 +1,10 @@
 
 <div align="center">
-When the chips are down,
+When I lie for my eternal sleep,
 <div align="center">
-I guess that's how much
+and rot until willows weep,
 <div align="center">
-of a badass I really am.
+I will still remember you.
 <br>
 <br>
 <br>
