@@ -1,6 +1,4 @@
-<br>
-<br>
-<br>
+
 <div align="center">
 When the chips are down,
 <div align="center">
