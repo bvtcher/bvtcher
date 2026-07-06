@@ -15,4 +15,4 @@ you were still nice to me.
 
 <div align="center">
 
-   [![Alt Text](https://file.garden/afOzvZALWB7P0ssM/FLAILFLAILFLAIL2.gif)](https://dirkuu.lurk.me) [![Alt Text](https://file.garden/afOzvZALWB7P0ssM/FLAILFLAILFLAILDIRK.gif)](https://i-am-your-lord.atabook.org) [![Alt Text](https://file.garden/afOzvZALWB7P0ssM/HAHAHAHAHAHAHAHAHAHAHAHAH.gif)](https://i-am-your-lord.atabook.org)
+   [![Alt Text](https://file.garden/afOzvZALWB7P0ssM/FLAILFLAILFLAIL2.gif)](https://pronouns.cc/@bvtcher) [![Alt Text](https://file.garden/afOzvZALWB7P0ssM/FLAILFLAILFLAILDIRK.gif)](https://bvtcher.carrd.co) [![Alt Text](https://file.garden/afOzvZALWB7P0ssM/HAHAHAHAHAHAHAHAHAHAHAHAH.gif)](https://bvtcher.atabook.org)
