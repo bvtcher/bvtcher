@@ -1,12 +1,8 @@
 
-<div align="center">
-When I lie for my eternal sleep,
-<div align="center">
-and rot until willows weep,
-<div align="center">
-I will always remember when
-<div align="center">
-you were still nice to me.
+<p align="center">$\text{\color{#ff7409} When I lie for my eternal sleep, }$</p>
+<p align="center">$\text{\color{#ff7409} and rot until willows weep, }$</p>
+<p align="center">$\text{\color{#ff7409} I will always remember when }$</p>
+<p align="center">$\text{\color{#ff7409} you were still nice to me. }$</p>
 <br>
 <br>
 <br>
@@ -16,8 +12,8 @@ you were still nice to me.
 <br>
 <br>
 <br>
-<div align="center">
-links
+<br>
+<p align="center">$\text{\color{#ff7409} links }$</p>
 
 
 <div align="center">
