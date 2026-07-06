@@ -14,5 +14,9 @@ you were still nice to me.
 <img src="https://file.garden/akvo-PKE-zqjKbE2/dirk%20strider%20quote%20(1).jpg"/>
 
 <div align="center">
+links
+
+
+<div align="center">
 
    [![Alt Text](https://file.garden/afOzvZALWB7P0ssM/FLAILFLAILFLAIL2.gif)](https://pronouns.cc/@bvtcher) [![Alt Text](https://file.garden/afOzvZALWB7P0ssM/FLAILFLAILFLAILDIRK.gif)](https://bvtcher.carrd.co) [![Alt Text](https://file.garden/afOzvZALWB7P0ssM/HAHAHAHAHAHAHAHAHAHAHAHAH.gif)](https://bvtcher.atabook.org)
