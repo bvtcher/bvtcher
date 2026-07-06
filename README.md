@@ -4,7 +4,9 @@ When I lie for my eternal sleep,
 <div align="center">
 and rot until willows weep,
 <div align="center">
-I will still remember you.
+I will always remember when
+<div align="center">
+you were still nice to me.
 <br>
 <br>
 <br>
