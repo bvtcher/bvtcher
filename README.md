@@ -18,4 +18,4 @@
 
 <div align="center">
 
-   [![Alt Text](https://file.garden/afOzvZALWB7P0ssM/FLAILFLAILFLAIL2.gif)](https://pronouns.cc/@bvtcher) [![Alt Text](https://file.garden/afOzvZALWB7P0ssM/FLAILFLAILFLAILDIRK.gif)](https://bvtcher.carrd.co) [![Alt Text](https://file.garden/afOzvZALWB7P0ssM/HAHAHAHAHAHAHAHAHAHAHAHAH.gif)](https://bvtcher.atabook.org)
+   [![Alt Text](https://64.media.tumblr.com/f0e440fa6e8676b63a5f30dc1838fb04/2ce436a738a938bf-49/s250x400/a2f9acb092635ff17309e1a3b329c9985610814d.pnj)](https://pronouns.cc/@bvtcher) [![Alt Text](https://file.garden/afOzvZALWB7P0ssM/FLAILFLAILFLAILDIRK.gif)](https://bvtcher.carrd.co) [![Alt Text](https://file.garden/afOzvZALWB7P0ssM/HAHAHAHAHAHAHAHAHAHAHAHAH.gif)](https://bvtcher.atabook.org)
